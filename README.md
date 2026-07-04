@@ -14,7 +14,7 @@
 <p align="center"> <img width="736" height="736" alt="1000009919" src="https://github.com/lacedemrai/piercingpawnz/issues/1#issuecomment-4883951222" />
 
 <div align="center">
-𓂃 ﹒ ⠀ ᛝ⠀⠀lucien / luke⠀⠀｡⠀♡　　 𝜗℘ . minor ﹒ 𓎢𓎟
+𓂃 ﹒ ⠀ ᛝ⠀⠀tavi / kim⠀⠀｡⠀♡　　 𝜗℘ . minor ﹒ 𓎢𓎟
 𓏴 ﹒
 he 𓂋 any ࿐ ⠀⠀
 
@@ -22,7 +22,7 @@ he 𓂋 any ࿐ ⠀⠀
 
 no copy or inspo . . 𐂯 ⠀⠀⠀enfp
 
-cudd　 　୭　　 hide 　 ♪ 　　　𓈒⠀⠀⠀meow..⠀
+cudd　 　୭　　 hide 　 ♪ 　　　𓈒⠀⠀⠀freely..⠀
 
 
 
