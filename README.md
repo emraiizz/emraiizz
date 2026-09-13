@@ -11,7 +11,7 @@
 
 
 
-<p align="center"> <img width="100" height="100" alt="1000009919" src="https://github.com/lacedemrai/piercingpawnz/blob/0556c037c1ee08f0dd99007f91c0becb2db7fa14/580548449-6c99d0e0-9bc9-4116-8eae-e8bc5aa69ef9.png" /> ⠀⠀
+<p align="center"> <img width="1320" height="320" alt="1000009919" src="https://github.com/lacedemrai/piercingpawnz/blob/0556c037c1ee08f0dd99007f91c0becb2db7fa14/580548449-6c99d0e0-9bc9-4116-8eae-e8bc5aa69ef9.png" /> ⠀⠀
 
     
  <div align="center">ヽ(´ ー ` ) ‎
